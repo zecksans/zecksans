@@ -7,7 +7,7 @@
 __________
 
 
-🙋🏾‍♂️ Pode me chamar de Ezequiel Santos.
+# 🙋🏾‍♂️ Pode me chamar de Ezequiel Santos.
 
 🔹Sou acadêmico do curso de [Ciências de Dados e Análise de Comportamento](https://www.youtube.com/watch?v=qLp3frgJDiU).
 Buscando uma transição de carreira. Como parte desta jornada tenho me dedicado à adquirir conhecimentos e habilidades técnicas da área de dados.
