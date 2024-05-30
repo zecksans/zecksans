@@ -12,7 +12,7 @@ __________
 🔹Sou acadêmico do curso de [Ciências de Dados e Análise de Comportamento](https://www.youtube.com/watch?v=qLp3frgJDiU).
 Buscando uma transição de carreira. Como parte desta jornada tenho me dedicado à adquirir conhecimentos e habilidades técnicas da área de dados.
 
-🔹Marido, pai e 'pseudo-cinéfilo'rs, sendo o diretor da minha própria narrativa, com roteiros escritos em abraços e trilhas sonoras de risadas. Meu cinema particular exibe cenas de amor, aventura e comédia, com um toque de suspense sobre o que o próximo ato trará.🎬🌟 
+🔹Marido, pai e 'pseudo-cinéfilo'rs... Sendo o diretor da minha própria narrativa, com roteiros escritos em abraços e trilhas sonoras de risadas. Meu cinema particular exibe cenas de amor, aventura e comédia, com um toque de suspense sobre o que o próximo ato trará.🎬🌟 
 
 
 ## 📚 Idiomas:
